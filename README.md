@@ -1,1 +1,2 @@
-# special-civil-servant
+# Special Civil Servant
+Après avoir échoué quatre fois à l’examen de la fonction publique de neuvième année et avoir connu de nombreux rebondissements, Han Maru a finalement réussi à devenir fonctionnaire spécial auprès du ministère de l’Environnement. Adieu la blouse ! Adieu les boîtes à lunch des supérettes ! Mais la joie de réussir fut de courte durée. Il s’est avéré qu’il s’agissait d’un travail secret national mettant sa vie en danger ?! Avec la poussière jaune sont arrivés les démons, des créatures qui tuent et mangent les humains. Le travail de fonctionnaire spécial de neuvième année consistait à mener une guerre contre ces démons ! La carrière de fonctionnaire spécial de Han Maru, qui met sa vie en danger, commence.
